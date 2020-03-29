@@ -1,5 +1,4 @@
-![AUDIOS CO  STREAMING APP (8)](https://user-images.githubusercontent.com/42983220/77710165-ff4a5480-6fd5-11ea-90f5-c82e0b72b443.png)
-
+![ezgif-2-ab4b8d6fa9fb](https://user-images.githubusercontent.com/42983220/77864253-cd303100-7227-11ea-9108-a8c674b0b950.gif)
 
 ### Get_ the full address
 
